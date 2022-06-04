@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hhhhzy76
+- 👀 I’m interested in model airplane
+- 🌱 I’m currently learning C++ & Python
+- 💞️ I’m looking to collaborate on eating
+- 📫 How to reach me : I don't want to tell you :)
